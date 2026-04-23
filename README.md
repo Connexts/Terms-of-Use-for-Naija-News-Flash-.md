@@ -1,2 +1,1 @@
-# terms.md
-Terms of Use document 
+Terms of Use for Naija News Flash✅
